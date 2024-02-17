@@ -14,3 +14,6 @@
 
 ### Adobe XD installer download:
 [Click-to-download](https://drive.google.com/file/d/1jOGarDoN6DGkYci53WlyLBPSjAnbCkwT/view?usp=sharing)
+
+### Icons and Books:
+[Click-to-download](https://drive.google.com/file/d/1HqpcWlDsB6mhbHkQ4f8kCnn-tyzpK6kV/view?usp=sharing)
