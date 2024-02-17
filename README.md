@@ -18,5 +18,5 @@
 ### Icons and Books:
 [Click-to-download](https://drive.google.com/file/d/1HqpcWlDsB6mhbHkQ4f8kCnn-tyzpK6kV/view?usp=sharing)
 
-### Optional, Sreve Jobs movie turkce:
+### Optional, Steve Jobs movie turkce:
 [Click-to-download](https://drive.google.com/file/d/1Oj98sFxw3gzaPtfSdGMaGlofhTU5NtDN/view?usp=sharing)
