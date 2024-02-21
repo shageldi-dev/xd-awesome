@@ -20,3 +20,10 @@
 
 ### Optional, Steve Jobs movie turkce:
 [Click-to-download](https://drive.google.com/file/d/1Oj98sFxw3gzaPtfSdGMaGlofhTU5NtDN/view?usp=sharing)
+
+
+### New videos:
+[Click to download first turkish video course](https://drive.google.com/file/d/1k3Dh98KY3GYP47SdaMd1Grb6bQZlqSvE/view?usp=sharing)
+
+#### Second turkce video:
+[Click to download](https://drive.google.com/file/d/1t89BwguQy6yAl0sbCLoX393Km-iqD35A/view?usp=sharing)
