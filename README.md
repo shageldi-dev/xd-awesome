@@ -1,5 +1,9 @@
 # xd-awesome
 
+## Any desk:
+[Download](https://drive.google.com/file/d/19wnGPEMhWQs1WFoDP7s4wPjB8vzlP95p/view?usp=sharing)
+
+
 ## Internet Download manager:
 [Click to download IDM](https://drive.google.com/file/d/1o5LUZZNnMPQnJ20VEdUiLkvTXAEf7BBc/view?usp=sharing)
 
