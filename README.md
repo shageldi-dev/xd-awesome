@@ -1,5 +1,8 @@
 # xd-awesome
 
+## Internet Download manager:
+[Click to download IDM](https://drive.google.com/file/d/1zhfJwfbuh_i7iW38LiTprjnN8U5NzCbi/view?usp=sharing)
+
 ### Video course-1
 [Click-to-download](https://drive.google.com/file/d/1ic5jIxSff3UP1xvebB7UUtq2nawoaPUk/view?usp=sharing)
 
